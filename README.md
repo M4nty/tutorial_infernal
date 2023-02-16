@@ -21,7 +21,7 @@ Pega uma lista qualquer de internet tipo essas:
 
 Ai baixa o que for da sua preferencia
 
-praticamente não importa a escolha ^^
+praticamente não importa a escolha '^^
 
 MAS EM HIPOTESE ALGUMA 
 
