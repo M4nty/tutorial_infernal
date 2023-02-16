@@ -20,4 +20,16 @@ ESCOLHA É SUA MAS EM HIPOTESE ALGUMA
 
 NÃO BAIXA O UTORRENT ESSE LIXO NAO PRESTA E TRAVA SEU TELEFONE/PC/LITERALMENTE QUALQUER COISA
 
-(obs. Utorrent so é um programa ruim mesmo mas se você genuinamente não liga baixa ele mas eu não recomendo é cheio de propaganda e de lixo desnecessario)
+(obs. Utorrent so é um [programa](https://www.oficinadanet.com.br/microsoft/22466-utorrent-enfrenta-novos-problemas-antivirus-identifica-cliente-como-ameaca) [ruim](https://olhardigital.com.br/2019/12/06/noticias/utorrent-e-reconhecido-como-ameaca-por-softwares-antivirus/) [mesmo](https://www.techtudo.com.br/noticias/2015/03/utorrent-usa-seu-computador-para-minerar-bitcoins-entenda-polemica.ghtml) mas se você genuinamente não liga baixa ele mas eu não recomendo é cheio de propaganda e de lixo desnecessario)
+
+## Como usa essa joça?
+
+A parte que importa de verdade
+
+Esse tipo de programa usa um desses tipos de arquivo
+
+-
+-
+
+
+!ia botar o link do nyaa mas é banido nessa desgraça de escola
