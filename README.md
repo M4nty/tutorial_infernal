@@ -1,6 +1,8 @@
 # tutorial_infernal
 sei la po bagui de pirataria(POR FAVOR NAO DELETA ISSO MICROSOFT😭😭😭😭😭😭😭😭)
 
+[Escolehndo o programa](#Escolhendo o programa)
+[Como utilizar](#Como_usa_essa_joça?)
 ----------
 
 # COMO BAIXAR TORRENT😮 SEM VIROS 199% CONFIAVEL👍 REMOVE 99,9% DAS BACTERIA 😃
@@ -25,7 +27,7 @@ NÃO BAIXA O UTORRENT ESSE LIXO NAO PRESTA E TRAVA SEU TELEFONE/PC/LITERALMENTE 
 
 (obs. Utorrent so é um [programa](https://www.oficinadanet.com.br/microsoft/22466-utorrent-enfrenta-novos-problemas-antivirus-identifica-cliente-como-ameaca) [ruim](https://olhardigital.com.br/2019/12/06/noticias/utorrent-e-reconhecido-como-ameaca-por-softwares-antivirus/) [mesmo](https://www.techtudo.com.br/noticias/2015/03/utorrent-usa-seu-computador-para-minerar-bitcoins-entenda-polemica.ghtml) mas se você genuinamente não liga usa ele mas como deu pra ver pelos links extras, eu não recomendo ele, é cheio de propaganda e de lixo desnecessario )
 
-## Como usa essa joça?
+## Como_usa_essa_joça?
 
 A parte que importa de verdade
 
