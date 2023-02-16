@@ -1,9 +1,11 @@
 # tutorial_infernal
 sei la po bagui de pirataria(POR FAVOR NAO DELETA ISSO MICROSOFT😭😭😭😭😭😭😭😭)
 
-#COMO BAIXAR TORRENT😮 SEM VIROS 199% CONFIAVEL👍 REMOVE 99,9% DAS BACTERIA 😃
+----------
 
-##Escolhendo o programa 
+# COMO BAIXAR TORRENT😮 SEM VIROS 199% CONFIAVEL👍 REMOVE 99,9% DAS BACTERIA 😃
+
+## Escolhendo o programa 
 
 Pega uma lista qualquer de internet tipo essas:
 
