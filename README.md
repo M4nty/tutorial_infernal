@@ -48,7 +48,7 @@ enfim o site tambem não importa é so um meio pra chegar nos links
 ai nisso segue esse passo a passo
 
 
-<img src="https://image.winudf.com/v2/image1/Y29tLmJpZ2x5YnQuYW5kcm9pZC5jbGllbnRfc2NyZWVuXzNfMTU4NDk4MzMwN18wNDM/screen-3.jpg?fakeurl=1" alt="Nesse menuzinho da para escolher as coisas individuais que você quer baixar" width="100" height="100" >
+<img src="https://image.winudf.com/v2/image1/Y29tLmJpZ2x5YnQuYW5kcm9pZC5jbGllbnRfc2NyZWVuXzNfMTU4NDk4MzMwN18wNDM/screen-3.jpg?fakeurl=1" alt="Nesse menuzinho da para escolher as coisas individuais que você quer baixar" width="295" height="300" >
 Nesse menuzinho da para escolher as coisas individuais que você quer baixar
 
 !ia botar o link do nyaa mas é banido nessa desgraça de escola
