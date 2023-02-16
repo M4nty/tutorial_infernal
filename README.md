@@ -3,7 +3,7 @@ sei la po bagui de pirataria(POR FAVOR NAO DELETA ISSO MICROSOFT😭😭😭😭
 
 [Escolehndo o programa](#Escolhendo-o-programa)
 
-[Como utilizar](#Como-usa-essa-joça?)
+[Como utilizar](#Como-usa-essa-joça)
 
 ----------
 
