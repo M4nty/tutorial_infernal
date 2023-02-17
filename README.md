@@ -56,3 +56,16 @@ ai nisso segue esse passo a passo
 Nesse menuzinho da para escolher as coisas individuais que você quer baixar
 
 !ia botar o link do nyaa mas é banido nessa desgraça de escola
+
+## Explicação torrent
+
+Basicamente o sistema do torrent funciona por meio de varias pessoas compartilhando o mesmo arquivo
+
+como isso acontece
+
+você meio que "pega emprestado" a conexão da galera que ta enviando os arquivos
+
+e ai fica 10 vezes mais rapido para baixar por que
+
+
+
