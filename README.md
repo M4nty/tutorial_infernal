@@ -61,6 +61,8 @@ ai nisso segue esse passo a passo
 
 (usei o biglyBT como exemplo mas normalmente é a mesma merda so que com detalhes a mais)
 
+[Imgur](https://imgur.com/8C1UAAx)
+
 ![Tela de introdução](https://imgur.com/Qs7EqWx)
 
 É so uma tela de identificação pra o celular ter um nomezinho diferente 
