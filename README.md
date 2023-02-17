@@ -5,6 +5,8 @@ sei la po bagui de pirataria(POR FAVOR NAO DELETA ISSO MICROSOFT😭😭😭😭
 
 [Como utilizar](#Como-usa-essa-joça)
 
+[Explicação por curiosidade](#explica%C3%A7%C3%A3o-torrent)
+
 ----------
 
 # COMO BAIXAR TORRENT😮 SEM VIROS 199% CONFIAVEL👍 REMOVE 99,9% DAS BACTERIA 😃
