@@ -63,16 +63,16 @@ ai nisso segue esse passo a passo
 
 [Imgur](https://imgur.com/8C1UAAx)
 
-![Tela de introdução](https://imgur.com/Qs7EqWx)
+![Tela de introdução](https://i.imgur.io/Qs7EqWx_d.webp?maxwidth=640&shape=thumb&fidelity=medium)
 
 É so uma tela de identificação pra o celular ter um nomezinho diferente 
 resto é bem auto-explicativo então depende da sua preferencia
 
-![fodasse n vou botar titulo](https://imgur.com/8C1UAAx)
+![fodasse n vou botar titulo](https://i.imgur.io/8C1UAAx_d.webp?maxwidth=640&shape=thumb&fidelity=medium)
 
 Aperta o botaão que ta com o retangulo vermelho
 
-![aaaaa](https://imgur.com/A5I53Zg)
+![aaaaa](https://i.imgur.io/A5I53Zg_d.webp?maxwidth=640&shape=thumb&fidelity=medium)
 
 como ta descrito na frasesinha com o retangulo vermelho, nessa caixinha você pode:
 
