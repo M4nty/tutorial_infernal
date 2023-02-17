@@ -37,8 +37,9 @@ A parte que importa de verdade >=D
 
 Esse tipo de programa usa um desses tipos de arquivo
 
--.magnet
--link magnetico
+- *um monte de merda na frente*.magnet
+
+- link magnetico
 
 que basicamente são um link
 
@@ -47,8 +48,11 @@ diferença de cada um é que um você baixa e outro usa copiar + colar
 para conseguir esses links você tem que encontrar sites como:
 
 - piratebay
+
 - nyaa.si
+
 - 1337X
+
 - sites de torrent
 
 enfim o site tambem não importa é so um meio pra chegar nos links
